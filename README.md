@@ -9,7 +9,6 @@
 7. Mystic Pop-up Bar (2020)
 8. Live On (2020)
    
-These are my favorite series and movies because this taught me how life has been challenging us. Despite of all mistreatment and unfairness, we, people, overcome those obstacles by choosing kindness.
 
 
 
